@@ -1,0 +1,6 @@
+/*
+Support Yoi
+
+
+Yang jual sc ini anak haram
+*/
